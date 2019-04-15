@@ -1,4 +1,5 @@
-hello world
+ï»¿hello world
 hello Mark
 hello hanwei
-hello Ð¤À¤
+hello Ð¤ï¿½ï¿½
+keep foolish
